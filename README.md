@@ -1,2 +1,2 @@
-# polash
+# GKPolash
 I am a professional Digital Marketer and organic SEO expert.
