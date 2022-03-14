@@ -1,2 +1,2 @@
 # polash
-i am student
+I am a professional Digital Marketer and organic SEO expert.
